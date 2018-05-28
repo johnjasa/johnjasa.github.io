@@ -1,1 +1,0 @@
-# johnjasa.github.io
